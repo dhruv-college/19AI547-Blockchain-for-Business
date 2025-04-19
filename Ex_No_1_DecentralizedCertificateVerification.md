@@ -41,3 +41,7 @@ High-Level Overview:
 ```
 # Result:
 
+![exp 1(i)](https://github.com/user-attachments/assets/62209eb1-afa3-43a4-878a-ccef16d063eb)
+
+![exp 1(ii)](https://github.com/user-attachments/assets/7840717a-7d2b-4ea3-8390-b31c981f2281)
+
