@@ -95,3 +95,10 @@ Directly related to DeFi protocols like Aave and Compound.
 
 # RESULT : 
 
+![exp 4(i)](https://github.com/user-attachments/assets/db023779-949c-46a2-80e2-729cf373b7ce)
+
+![exp 4(ii)](https://github.com/user-attachments/assets/39f096a9-6a93-4f8e-8be9-2a579c29ac9c)
+
+![exp 4(iii)](https://github.com/user-attachments/assets/52005122-fa7e-47f9-8607-c32b8a5f9963)
+
+![exp 4(iv)](https://github.com/user-attachments/assets/89e7d9ce-0f18-4f28-8ed7-f10f8dcb7a58)
